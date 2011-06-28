@@ -7,3 +7,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=A2ELkin5XIc) |
 [متن](text/zeus0002.md) |
 ۴ تیر ۱۳۹۰)
+
+[کلیپ ۳: «پری دریایی»](../../raw/main/video/zeus0003.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=V197rKnENyM) |
+[متن](text/zeus0003.md) |
+۷ تیر ۱۳۹۰)
