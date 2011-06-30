@@ -12,3 +12,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=V197rKnENyM) |
 [متن](text/zeus0003.md) |
 ۷ تیر ۱۳۹۰)
+
+[کلیپ ۴: «شکل گرفتن زمین»](../../raw/main/video/zeus0004.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=O_4zkaBg8Iw) |
+[متن](text/zeus0004.md) |
+۹ تیر ۱۳۹۰)
