@@ -17,3 +17,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=O_4zkaBg8Iw) |
 [متن](text/zeus0004.md) |
 ۹ تیر ۱۳۹۰)
+
+[کلیپ ۵: «مثال و نتیجه»](../../raw/main/video/zeus0005.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=hW49OtJXG5A) |
+[متن](text/zeus0005.md) |
+۱۷ تیر ۱۳۹۰)
