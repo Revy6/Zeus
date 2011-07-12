@@ -22,3 +22,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=hW49OtJXG5A) |
 [متن](text/zeus0005.md) |
 ۱۷ تیر ۱۳۹۰)
+
+[کلیپ ۶: «نظم در جهان»](../../raw/main/video/zeus0006.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=g6iY4G3hZZQ) |
+[متن](text/zeus0006.md) |
+۲۱ تیر ۱۳۹۰)
