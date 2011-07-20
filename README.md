@@ -27,3 +27,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=g6iY4G3hZZQ) |
 [متن](text/zeus0006.md) |
 ۲۱ تیر ۱۳۹۰)
+
+[کلیپ ۷: «تکامل موجودات زنده»](../../raw/main/video/zeus0007.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=SfPdqy3kp1U) |
+[متن](text/zeus0007.md) |
+۲۹ تیر ۱۳۹۰)
