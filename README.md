@@ -32,3 +32,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=SfPdqy3kp1U) |
 [متن](text/zeus0007.md) |
 ۲۹ تیر ۱۳۹۰)
+
+[کلیپ ۸: «دی ان ای»](../../raw/main/video/zeus0008.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=467VIJwmsws) |
+[متن](text/zeus0008.md) |
+۴ مرداد ۱۳۹۰)
