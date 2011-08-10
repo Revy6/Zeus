@@ -37,3 +37,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=467VIJwmsws) |
 [متن](text/zeus0008.md) |
 ۴ مرداد ۱۳۹۰)
+
+[کلیپ ۹: «راز خلقت حیات»](../../raw/main/video/zeus0009.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=4dhNJFTCR58) |
+[متن](text/zeus0009.md) |
+۱۹ مرداد ۱۳۹۰)
