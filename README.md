@@ -42,3 +42,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=4dhNJFTCR58) |
 [متن](text/zeus0009.md) |
 ۱۹ مرداد ۱۳۹۰)
+
+[کلیپ ۱۰: «آیا جهان هستی خدایی دارد؟»](../../raw/main/video/zeus0010.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=PpJGukTtktk) |
+[متن](text/zeus0010.md) |
+۲۴ مرداد ۱۳۹۰)
