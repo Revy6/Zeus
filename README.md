@@ -47,3 +47,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=PpJGukTtktk) |
 [متن](text/zeus0010.md) |
 ۲۴ مرداد ۱۳۹۰)
+
+[کلیپ ۱۱: «معجزه»](../../raw/main/video/zeus0011.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=3zHozDjf7g8) |
+[متن](text/zeus0011.md) |
+۱۴ شهریور ۱۳۹۰)
