@@ -52,3 +52,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=3zHozDjf7g8) |
 [متن](text/zeus0011.md) |
 ۱۴ شهریور ۱۳۹۰)
+
+[کلیپ ۱۲: «قوانین طبیعت»](../../raw/main/video/zeus0012.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=1-R6NxMauYA) |
+[متن](text/zeus0012.md) |
+۱۷ شهریور ۱۳۹۰)
