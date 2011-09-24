@@ -57,3 +57,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=1-R6NxMauYA) |
 [متن](text/zeus0012.md) |
 ۱۷ شهریور ۱۳۹۰)
+
+[کلیپ ۱۳: «جهش ژنی»](../../raw/main/video/zeus0013.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=JoEegDK5hY0) |
+[متن](text/zeus0013.md) |
+۲ مهر ۱۳۹۰)
