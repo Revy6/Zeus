@@ -62,3 +62,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=JoEegDK5hY0) |
 [متن](text/zeus0013.md) |
 ۲ مهر ۱۳۹۰)
+
+[کلیپ ۱۴: «انتخاب طبیعی (۱)»](../../raw/main/video/zeus0014.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=d2-SjdOnr3Q) |
+[متن](text/zeus0014.md) |
+۱۱ مهر ۱۳۹۰)
