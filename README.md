@@ -67,3 +67,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=d2-SjdOnr3Q) |
 [متن](text/zeus0014.md) |
 ۱۱ مهر ۱۳۹۰)
+
+[کلیپ ۱۵: «تئوری داروین»](../../raw/main/video/zeus0015.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=r-MEYNzLqq4) |
+[متن](text/zeus0015.md) |
+۱۷ مهر ۱۳۹۰)
