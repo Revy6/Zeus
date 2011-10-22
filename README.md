@@ -72,3 +72,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=r-MEYNzLqq4) |
 [متن](text/zeus0015.md) |
 ۱۷ مهر ۱۳۹۰)
+
+[کلیپ ۱۶: «چرا ما به خدا ایمان داریم؟»](../../raw/main/video/zeus0016.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=9NdKJTbVT9s) |
+[متن](text/zeus0016.md) |
+۳۰ مهر ۱۳۹۰)
