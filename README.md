@@ -77,3 +77,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=9NdKJTbVT9s) |
 [متن](text/zeus0016.md) |
 ۳۰ مهر ۱۳۹۰)
+
+[کلیپ ۱۷: «انتخاب طبیعی (۲)»](../../raw/main/video/zeus0017.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=_hKC7iZhRm0) |
+[متن](text/zeus0017.md) |
+۱۷ آبان ۱۳۹۰)
