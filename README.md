@@ -82,3 +82,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=_hKC7iZhRm0) |
 [متن](text/zeus0017.md) |
 ۱۷ آبان ۱۳۹۰)
+
+[کلیپ ۱۸: «خدا بهتر می‌داند یا انسان؟»](../../raw/main/video/zeus0018.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=-U89IICFxXY) |
+[متن](text/zeus0018.md) |
+۱۹ آبان ۱۳۹۰)
