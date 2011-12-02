@@ -87,3 +87,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=-U89IICFxXY) |
 [متن](text/zeus0018.md) |
 ۱۹ آبان ۱۳۹۰)
+
+[کلیپ ۱۹: «ایثار، بدون ثواب»](../../raw/main/video/zeus0019.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=erIAIGse-1Y) |
+[متن](text/zeus0019.md) |
+۱۱ آذر ۱۳۹۰)
