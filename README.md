@@ -92,3 +92,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=erIAIGse-1Y) |
 [متن](text/zeus0019.md) |
 ۱۱ آذر ۱۳۹۰)
+
+[کلیپ ۲۰: «پاسخی به کلیپ‌های خدا»](../../raw/main/video/zeus0020.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=byx0ZUOs8gA) |
+[متن](text/zeus0020.md) |
+۱۶ آذر ۱۳۹۰)
