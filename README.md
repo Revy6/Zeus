@@ -97,3 +97,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=byx0ZUOs8gA) |
 [متن](text/zeus0020.md) |
 ۱۶ آذر ۱۳۹۰)
+
+[کلیپ ۲۱: «تصادف»](../../raw/main/video/zeus0021.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=ThvgmBpWvFk) |
+[متن](text/zeus0021.md) |
+۳۰ آذر ۱۳۹۰)
