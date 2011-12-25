@@ -102,3 +102,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=ThvgmBpWvFk) |
 [متن](text/zeus0021.md) |
 ۳۰ آذر ۱۳۹۰)
+
+[کلیپ ۲۲: «اسلام زلال»](../../raw/main/video/zeus0022.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=Ov_5xQGvFoM) |
+[متن](text/zeus0022.md) |
+۴ دی ۱۳۹۰)
