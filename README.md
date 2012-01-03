@@ -107,3 +107,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=Ov_5xQGvFoM) |
 [متن](text/zeus0022.md) |
 ۴ دی ۱۳۹۰)
+
+[کلیپ ۲۳: «همجنسگرایی»](../../raw/main/video/zeus0023.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=wJxyLLppUyE) |
+[متن](text/zeus0023.md) |
+۱۳ دی ۱۳۹۰)
