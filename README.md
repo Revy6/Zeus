@@ -112,3 +112,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=wJxyLLppUyE) |
 [متن](text/zeus0023.md) |
 ۱۳ دی ۱۳۹۰)
+
+[کلیپ ۲۴: «اگر شرایط زمین، غیر از این بود ...»](../../raw/main/video/zeus0024.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=6H5VMkVuMK8) |
+[متن](text/zeus0024.md) |
+۱۹ دی ۱۳۹۰)
