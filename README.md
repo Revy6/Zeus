@@ -117,3 +117,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=6H5VMkVuMK8) |
 [متن](text/zeus0024.md) |
 ۱۹ دی ۱۳۹۰)
+
+[کلیپ ۲۵: «دلیل خلقت عالم»](../../raw/main/video/zeus0025.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=XHrj38sAGrU) |
+[متن](text/zeus0025.md) |
+۲۱ دی ۱۳۹۰)
