@@ -122,3 +122,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=XHrj38sAGrU) |
 [متن](text/zeus0025.md) |
 ۲۱ دی ۱۳۹۰)
+
+کلیپ ۲۶: «The Purpose of Universe»
+([یوتیوب](https://www.youtube.com/watch?v=etNYdSHMK4I) |
+[متن](text/zeus0026.md) |
+۲۶ دی ۱۳۹۰)
