@@ -127,3 +127,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=etNYdSHMK4I) |
 [متن](text/zeus0026.md) |
 ۲۶ دی ۱۳۹۰)
+
+[کلیپ ۲۷: «روابط ریاضی در قرآن»](../../raw/main/video/zeus0027.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=7ftDpUyEBGE) |
+[متن](text/zeus0027.md) |
+۲۸ دی ۱۳۹۰)
