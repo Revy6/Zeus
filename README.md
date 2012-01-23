@@ -132,3 +132,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=7ftDpUyEBGE) |
 [متن](text/zeus0027.md) |
 ۲۸ دی ۱۳۹۰)
+
+کلیپ ۲۸: «Mathematical Formula in Quran»
+([یوتیوب](https://www.youtube.com/watch?v=WJBMPDwdU5s) |
+[متن](text/zeus0028.md) |
+۳ بهمن ۱۳۹۰)
