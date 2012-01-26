@@ -137,3 +137,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=WJBMPDwdU5s) |
 [متن](text/zeus0028.md) |
 ۳ بهمن ۱۳۹۰)
+
+[کلیپ ۲۹: «خط قرآن»](../../raw/main/video/zeus0029.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=tTElxkgIfYM) |
+[متن](text/zeus0029.md) |
+۶ بهمن ۱۳۹۰)
