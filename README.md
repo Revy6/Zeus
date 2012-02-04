@@ -142,3 +142,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=tTElxkgIfYM) |
 [متن](text/zeus0029.md) |
 ۶ بهمن ۱۳۹۰)
+
+[کلیپ ۳۰: «چیدمان قرآن»](../../raw/main/video/zeus0030.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=fT9E3pLULp0) |
+[متن](text/zeus0030.md) |
+۱۵ بهمن ۱۳۹۰)
