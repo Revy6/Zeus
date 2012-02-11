@@ -147,3 +147,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=fT9E3pLULp0) |
 [متن](text/zeus0030.md) |
 ۱۵ بهمن ۱۳۹۰)
+
+[کلیپ ۳۱: «جنین انسان»](../../raw/main/video/zeus0031.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=QqdilSUda3M) |
+[متن](text/zeus0031.md) |
+۲۲ بهمن ۱۳۹۰)
