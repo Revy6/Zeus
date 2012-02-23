@@ -152,3 +152,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=QqdilSUda3M) |
 [متن](text/zeus0031.md) |
 ۲۲ بهمن ۱۳۹۰)
+
+[کلیپ ۳۲: «خواب و روح»](../../raw/main/video/zeus0032.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=Ys1e_K77rHM) |
+[متن](text/zeus0032.md) |
+۴ اسفند ۱۳۹۰)
