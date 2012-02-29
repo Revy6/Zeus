@@ -157,3 +157,8 @@
 ([یوتیوب](https://www.youtube.com/watch?v=Ys1e_K77rHM) |
 [متن](text/zeus0032.md) |
 ۴ اسفند ۱۳۹۰)
+
+[کلیپ ۳۳: «جنگ بنی‌قریظه»](../../raw/main/video/zeus0033.mp4)
+([یوتیوب](https://www.youtube.com/watch?v=d3Z3bfIT5hU) |
+[متن](text/zeus0033.md) |
+۱۰ اسفند ۱۳۹۰)
