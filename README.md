@@ -575,6 +575,10 @@
 
 [کلیپ ۱۳۷: آیا ذره ها شعور دارند؟](https://www.youtube.com/watch?v=onrMA-RU4eA)
 
+### ۷ مهر
+
+[کلیپ ۱۳۸: اسلام داعش](https://www.youtube.com/watch?v=kRORkrP8Xiw)
+
 ### ۲۲ مهر
 
 [کلیپ ۱۳۹: خود ثابت انسان](https://www.youtube.com/watch?v=p88eoN9zfNc)
@@ -1115,6 +1119,10 @@
 
 ## سال ۲۵۷۷
 
+### ۴ فروردین
+
+[کلیپ ۲۷۲: مرتاض و صوفی](https://www.youtube.com/watch?v=e63lJaoM6i4)
+
 ### ۱۴ فروردین
 
 [کلیپ ۲۷۳: فیزیکالیسم](https://www.youtube.com/watch?v=yc_j0tWADpw)
@@ -1316,6 +1324,10 @@
 ### ۱۲ دی
 
 [کلیپ ۳۱۷: طب سنتی و طب اسلامی](https://www.youtube.com/watch?v=Nx3uvi8zAp0)
+
+### ۱۸ دی
+
+[کلیپ ۳۱۸: قاسم سلیمانی و سپاه قدس](https://www.youtube.com/watch?v=9it8nhfp_S4)
 
 ### ۳۰ دی
 
@@ -2871,6 +2883,10 @@
 
 [کلیپ ۴۹۶:  اصالت نه در وجود، و نه در ماهیت!](https://www.youtube.com/watch?v=wyskcvrIggk)
 
+### ۸ مرداد
+
+[کلیپ ویژه ۱۴۲: اخلاق و فرهنگ، در مراسم افتتاحیه المپیک ۲۰۲۴ پاریس](https://www.youtube.com/watch?v=vfAySO6QxX8)
+
 ### ۱۰ مرداد
 
 [کلیپ ویژه ۱۴۳: کی زد؟ و چرا در تهران زد؟](https://www.youtube.com/watch?v=pt0yY2C5oVs)
@@ -3480,3 +3496,8 @@
 
 [کلیپ ویژه ۲۶۴: بازگشت به شکوه ایران، با تغییر رژیم!](https://www.youtube.com/watch?v=ALRpOyQLCmQ)
 ([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250623/zeus-special-264.webm))
+
+### ۳ تیر
+
+[کلیپ ویژه ۲۶۵: آتش بس عجیب ترامپ!](https://www.youtube.com/watch?v=0NGUyOj0IRk)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250624/zeus-special-265.webm))
