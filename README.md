@@ -3507,4 +3507,4 @@
 ### ۴ تیر
 
 [کلیپ ویژه ۲۶۶: تا فصل دوم سریال جنگ ۱۲ روزه!](https://www.youtube.com/watch?v=u_ihtag_jAc)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250625/zeus-special-266.webm))
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250625/zeus-special-266.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B6%3A-%D8%AA%D8%A7-%D9%81%D8%B5%D9%84-%D8%AF%D9%88%D9%85-%D8%B3%D8%B1%DB%8C%D8%A7%D9%84-%D8%AC%D9%86%DA%AF-%DB%B1%DB%B2-%D8%B1%D9%88%D8%B2%D9%87%21))
