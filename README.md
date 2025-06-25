@@ -80,7 +80,7 @@
 [کلیپ ۱۶: چرا ما به خدا ایمان داریم؟](https://www.youtube.com/watch?v=9NdKJTbVT9s)
 ([بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%DB%B1%DB%B6%3A-%DA%86%D8%B1%D8%A7-%D9%85%D8%A7-%D8%A8%D9%87-%D8%AE%D8%AF%D8%A7-%D8%A7%DB%8C%D9%85%D8%A7%D9%86-%D8%AF%D8%A7%D8%B1%DB%8C%D9%85%D8%9F))
 
-### ۱۷ آبان
+### ۱۸ آبان
 
 [کلیپ ۱۷: انتخاب طبیعی «2»](https://www.youtube.com/watch?v=_hKC7iZhRm0)
 ([بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%DB%B1%DB%B7%3A-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8-%D8%B7%D8%A8%DB%8C%D8%B9%DB%8C-%C2%AB2%C2%BB))
@@ -95,12 +95,12 @@
 [کلیپ ۱۹: ایثار، بدون ثواب](https://www.youtube.com/watch?v=erIAIGse-1Y)
 ([بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%DB%B1%DB%B9%3A-%D8%A7%DB%8C%D8%AB%D8%A7%D8%B1%D8%8C-%D8%A8%D8%AF%D9%88%D9%86-%D8%AB%D9%88%D8%A7%D8%A8))
 
-### ۱۶ آذر
+### ۱۷ آذر
 
 [کلیپ ۲۰: پاسخی به کلیپ های خدا](https://www.youtube.com/watch?v=byx0ZUOs8gA)
 ([بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%DB%B2%DB%B0%3A-%D9%BE%D8%A7%D8%B3%D8%AE%DB%8C-%D8%A8%D9%87-%DA%A9%D9%84%DB%8C%D9%BE-%D9%87%D8%A7%DB%8C-%D8%AE%D8%AF%D8%A7))
 
-### ۳۰ آذر
+### ۱ دی
 
 [کلیپ ۲۱: تصادف](https://www.youtube.com/watch?v=ThvgmBpWvFk)
 ([بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%DB%B2%DB%B1%3A-%D8%AA%D8%B5%D8%A7%D8%AF%D9%81))
@@ -275,7 +275,7 @@
 
 [کلیپ ۶۳: اعتماد به دانشمندان](https://www.youtube.com/watch?v=21cTbojfkHM)
 
-### ۲۴ مهر
+### ۲۵ مهر
 
 [کلیپ ۶۴: تلنگر خدا](https://www.youtube.com/watch?v=BvcEgbRg9h0)
 
@@ -287,7 +287,7 @@
 
 [کلیپ ۶۶: بررسی خشونت اسلام از نگاه روشنفکر دینی -2](https://www.youtube.com/watch?v=Tn2YNTS5Lkw)
 
-### ۱۶ آبان
+### ۱۷ آبان
 
 [کلیپ ۶۷: انرژی](https://www.youtube.com/watch?v=d50oEzJbv3o)
 
@@ -465,7 +465,7 @@
 
 [کلیپ ۱۱۰: زن در اسلام](https://www.youtube.com/watch?v=_3O58v9k-eA)
 
-### ۱ آذر
+### ۲ آذر
 
 [کلیپ ۱۱۱: داستان تکامل حیات](https://www.youtube.com/watch?v=xCLZY0nFyKQ)
 
@@ -473,7 +473,7 @@
 
 [کلیپ ۱۱۲: مدل علمی](https://www.youtube.com/watch?v=Oza7y_uUXUg)
 
-### ۲۶ آذر
+### ۲۷ آذر
 
 [کلیپ ۱۱۳: علت بیگ بنگ](https://www.youtube.com/watch?v=_OJ0elSZJCo)
 
@@ -493,11 +493,11 @@
 
 [کلیپ ۱۱۷: جبر و اختیار](https://www.youtube.com/watch?v=f1_g85bG-_g)
 
-### ۱۸ بهمن
+### ۱۹ بهمن
 
 [کلیپ ۱۱۸: مقایسه انسان با ربوت](https://www.youtube.com/watch?v=AzhWuNPxlcM)
 
-### ۴ اسفند
+### ۵ اسفند
 
 [کلیپ ۱۱۹: جججن](https://www.youtube.com/watch?v=D0rU4nd_ik4)
 
@@ -505,7 +505,7 @@
 
 [کلیپ ۱۲۰: جن گیر](https://www.youtube.com/watch?v=hlqVlBLfXNM)
 
-### ۱۵ اسفند
+### ۱۶ اسفند
 
 [کلیپ ۱۲۱: شناخت فرگشت با توابع ریاضی](https://www.youtube.com/watch?v=id0mB3fgJNY)
 
@@ -583,7 +583,7 @@
 
 [کلیپ ۱۳۹: خود ثابت انسان](https://www.youtube.com/watch?v=p88eoN9zfNc)
 
-### ۵ آبان
+### ۶ آبان
 
 [کلیپ ۱۴۰: امام حسین](https://www.youtube.com/watch?v=HJibonyLNBI)
 
@@ -603,7 +603,7 @@
 
 [کلیپ ۱۴۴: معجزه قرآن (مورچه)](https://www.youtube.com/watch?v=haWROkCfKIo)
 
-### ۷ دی
+### ۸ دی
 
 [کلیپ ۱۴۵: چند دنیایی](https://www.youtube.com/watch?v=rqBrbA58r-c)
 
@@ -615,11 +615,11 @@
 
 [کلیپ ۱۴۷: ذهن و خدا](https://www.youtube.com/watch?v=F8_jDSKSkaI)
 
-### ۵ بهمن
+### ۶ بهمن
 
 [کلیپ ۱۴۸: تجربه شخصی](https://www.youtube.com/watch?v=Wx1N72zP89Y)
 
-### ۱۸ بهمن
+### ۱۹ بهمن
 
 [کلیپ ۱۴۹: یک ذره در دو مکان](https://www.youtube.com/watch?v=25ozr0z_kjY)
 
@@ -627,7 +627,7 @@
 
 [کلیپ ۱۵۰: روز قیامت](https://www.youtube.com/watch?v=JZmPatXBgQk)
 
-### ۷ اسفند
+### ۸ اسفند
 
 [کلیپ ۱۵۱: اصل علیت و تصادف در کوانتوم](https://www.youtube.com/watch?v=Y2mDoRFzigg)
 
@@ -707,7 +707,7 @@
 
 [کلیپ ۱۷۱: خدا منتفی است](https://www.youtube.com/watch?v=ls3PmK_94i8)
 
-### ۳۱ مرداد
+### ۱ شهریور
 
 [کلیپ ۱۷۲: بیخدا شدن](https://www.youtube.com/watch?v=2yA3R63LE-U)
 
@@ -819,9 +819,9 @@
 
 ### ۳ خرداد
 
-[کلیپ ۱۹۱: امواج گرانشی](https://www.youtube.com/watch?v=kVk7Q5vmEuk)
-
 [کلیپ ۲۰۰: امام دوازدهم](https://www.youtube.com/watch?v=EK_SbetYu-Y)
+
+[کلیپ ۱۹۱: امواج گرانشی](https://www.youtube.com/watch?v=kVk7Q5vmEuk)
 
 ### ۹ خرداد
 
@@ -887,7 +887,7 @@
 
 [کلیپ ۲۱۶: اعتقاد به آخر الزمان](https://www.youtube.com/watch?v=4xIAKWVlbts)
 
-### ۲۰ مهر
+### ۲۱ مهر
 
 [کلیپ ۲۱۷: وجود و موجود](https://www.youtube.com/watch?v=VEoYfqn1GZk)
 
@@ -1367,7 +1367,7 @@
 
 [کلیپ ۳۲۷: کتاب انسان خردمند ۱](https://www.youtube.com/watch?v=zFDgvZgt32g)
 
-### ۳۰ خرداد
+### ۳۱ خرداد
 
 [مناظره: قسمت دوم) - بحث خدا و نقد کلیپ های زئوس - با حضور آقای عقیل هاشمی و زئوس](https://www.youtube.com/watch?v=eko4iUsWhMY)
 
@@ -1379,7 +1379,7 @@
 
 [کلیپ ۳۲۸: بازی زندگی کانوی](https://www.youtube.com/watch?v=ZomYe0KizG0)
 
-### ۲۱ تیر
+### ۲۲ تیر
 
 [مناظره: پیدایش عالم - پاسخ های زئوس به آقای طباطبایی در سال ۱۳۹۶](https://www.youtube.com/watch?v=fAGoM7Pdq2g)
 
@@ -1485,7 +1485,7 @@
 
 [کلیپ ۳۴۲: خلافت علی بن ابیطالب – قسمت اول](https://www.youtube.com/watch?v=E1h-NDncMNg)
 
-### ۱۱ اردیبهشت
+### ۱۲ اردیبهشت
 
 [کلیپ ۳۴۳: خلافت علی بن ابیطالب – قسمت دوم](https://www.youtube.com/watch?v=suab4wEMhEM)
 
@@ -1589,9 +1589,11 @@
 
 ### ۳۰ آذر
 
-[کلیپ ۳۶۰: سویه اومیکرون کرونا سریعتر از دلتا تکثیر می یابد](https://www.youtube.com/watch?v=vwNBbQQBq5E)
-
 [شب یلدا بر همه عزیزان فرخنده باد](https://www.youtube.com/watch?v=q9Ogo_HQlNc)
+
+### ۱ دی
+
+[کلیپ ۳۶۰: سویه اومیکرون کرونا سریعتر از دلتا تکثیر می یابد](https://www.youtube.com/watch?v=vwNBbQQBq5E)
 
 ### ۸ دی
 
@@ -1609,7 +1611,7 @@
 
 [کلاب هاوس ۱: مناظره زئوس و وریا - گیاهخواری و گوشتخواری»](https://www.youtube.com/watch?v=vl39M-1oZE0)
 
-### ۲۷ دی
+### ۲۸ دی
 
 [کلیپ ۳۶۲: علوم غریبه و استقرا علم](https://www.youtube.com/watch?v=9NC3Ky8oMOg)
 
@@ -1633,7 +1635,7 @@
 
 [کلیپ ویژه: پاسخ به دو اشکال بر رباعیات خیام](https://www.youtube.com/watch?v=FjA852VJcXc)
 
-### ۷ اسفند
+### ۸ اسفند
 
 [کلیپ ۳۶۵: ابر- باران - برف - تگرگ - از نظر علمی](https://www.youtube.com/watch?v=auqBvCKkVG4)
 
@@ -1667,7 +1669,7 @@
 
 [کلیپ ۳۶۸: روش تحلیل یک مناظره tajik: Усули таҳлили баҳс](https://www.youtube.com/watch?v=Q42XcfckAsA)
 
-### ۱۰ فروردین
+### ۱۱ فروردین
 
 [کلیپ ویژه: مناظره: دکتر وحید باقرپور کاشانی و زئوس – برهان حدوث عالم – بخش سوم (آخر)](https://www.youtube.com/watch?v=CWosDeYhBBU)
 
@@ -1683,19 +1685,17 @@
 
 [کلیپ ویژه: پاسخ زئوس به تحلیل مناظره](https://www.youtube.com/watch?v=9am_nWmLfD4)
 
-### ۲۱ فروردین
+### ۲۲ فروردین
 
 [کلیپ ویژه: اگه زئوس بیاد ایران، حکمش چیه؟](https://www.youtube.com/watch?v=9e1SBbbo_a0)
 
-### ۲۲ فروردین
-
 [کلیپ ۳۶۹: مقالات علمی و روزه رمضان -Tajik: Мақолаҳои илмӣ ва рӯзадории Рамазон](https://www.youtube.com/watch?v=rxCSy8t7-uA)
 
-### ۲۵ فروردین
+### ۲۶ فروردین
 
 [کلاب هاوس ۳: پخش زنده: چرا خدا باید باشد؟ اگر نمی بود، چه میشد؟ واجب الوجود چیست؟](https://www.youtube.com/watch?v=irYL066AYmk)
 
-### ۲۶ فروردین
+### ۲۷ فروردین
 
 [کلاب هاوس ۴: دو آتئیست - وریا و زئوس - به چه باور دارید؟ و چرا؟](https://www.youtube.com/watch?v=wCADpISmZFE)
 
@@ -1711,7 +1711,7 @@
 
 [کلیپ ۳۷۲: بهشت در قرآن - Биҳишт дар Қуръон](https://www.youtube.com/watch?v=E0TK3XmGKws)
 
-### ۸ اردیبهشت
+### ۹ اردیبهشت
 
 [کلاب هاوس ۵: یکساعت؛ با برهان حرکت در فلسفه اسلامی (کلیپ ۳۷۱)](https://www.youtube.com/watch?v=Jc-vqBBf7es)
 
@@ -1927,7 +1927,7 @@
 
 [کلیپ ۳۹۴:  تغییر چهره جن در قرآن](https://www.youtube.com/watch?v=IUboeqs-Slw)
 
-### ۲۴ شهریور
+### ۲۵ شهریور
 
 [کلاب مهروماه چرا ما بدنبال خدا هستیم؟](https://www.youtube.com/watch?v=1QOUuZsY7Zo)
 
@@ -2003,7 +2003,7 @@
 
 [کلیپ ویژه ۳۸:  شکست تیم فوتبال ملاها](https://www.youtube.com/watch?v=HUPAM9uj36c)
 
-### ۱۲ آذر
+### ۱۳ آذر
 
 [کلیپ ویژه ۳۹:  مرز بین خشونت و دفاع مشروع کجاست؟](https://www.youtube.com/watch?v=TUhadWP6-dI)
 
@@ -2125,7 +2125,7 @@
 
 [کلیپ ۴۲۴:  ماجرای خلافت امام حسن](https://www.youtube.com/watch?v=sY5u1tVnTQM)
 
-### ۲۲ فروردین
+### ۲۳ فروردین
 
 [کلیپ ۴۲۵:  نزول قرآن](https://www.youtube.com/watch?v=sVNoxPutsl8)
 
@@ -2197,7 +2197,7 @@
 
 [کلیپ ۴۳۴:  حدوث یا ازلیت عالم](https://www.youtube.com/watch?v=q6n9_qGi9-A)
 
-### ۱۵ خرداد
+### ۱۶ خرداد
 
 [کلیپ ویژه ۵۳: نگاهی به نظام جمهوری](https://www.youtube.com/watch?v=Ef3oGqAqloA)
 
@@ -2271,9 +2271,9 @@
 
 ### ۱۴ مرداد
 
-[کلیپ ویژه ۶۰: قصه نادرشاه و پیرمرد جنگجو](https://www.youtube.com/watch?v=IqjjVy5iVds)
-
 [اول و آخر جنبش مشروطه - زئوس](https://www.youtube.com/watch?v=sKrvo4pylo8)
+
+[کلیپ ویژه ۶۰: قصه نادرشاه و پیرمرد جنگجو](https://www.youtube.com/watch?v=IqjjVy5iVds)
 
 ### ۲۰ مرداد
 
@@ -2305,9 +2305,9 @@
 
 ### ۱۸ شهریور
 
-[کلیپ ۴۴۷: زئوس– اهمیت سختی راه رسیدن به هدف](https://www.youtube.com/watch?v=kCedb2iGLqA)
-
 [کلیپ ویژه ۶۶: ایران آینده- امکان ها و فرصت ها](https://www.youtube.com/watch?v=x9w6TV9KIWA)
+
+[کلیپ ۴۴۷: زئوس– اهمیت سختی راه رسیدن به هدف](https://www.youtube.com/watch?v=kCedb2iGLqA)
 
 ### ۱۹ شهریور
 
@@ -2341,11 +2341,11 @@
 
 ### ۸ مهر
 
-[کلیپ ویژه ۶۸: گروه مترقی](https://www.youtube.com/watch?v=jejtyqLBs2U)
-
 [احساسات بجای عقل و منطق1 - زئوس](https://www.youtube.com/watch?v=6cCesgEXYsg)
 
 [احساسات بجای عقل و منطق2 - زئوس](https://www.youtube.com/watch?v=9ay84jSGfq0)
+
+[کلیپ ویژه ۶۸: گروه مترقی](https://www.youtube.com/watch?v=jejtyqLBs2U)
 
 ### ۱۴ مهر
 
@@ -2457,9 +2457,9 @@
 
 ### ۴ دی
 
-[کلیپ ۴۵۸:  قرآن و تسلط مردان بر زنان](https://www.youtube.com/watch?v=lfxiTJHQCmE)
-
 [الهیات اسطورهای، فلسفی، دینی](https://www.youtube.com/watch?v=2G91Mlm36pY)
+
+[کلیپ ۴۵۸:  قرآن و تسلط مردان بر زنان](https://www.youtube.com/watch?v=lfxiTJHQCmE)
 
 ### ۶ دی
 
@@ -2533,9 +2533,9 @@
 
 ### ۱۵ بهمن
 
-[کلیپ ویژه ۸۷: بررسی نقدی بر منوتو](https://www.youtube.com/watch?v=gLf5R7LTaI0)
-
 [خمینی از هندوستان تا ماه](https://www.youtube.com/watch?v=PmA2vSrDcOM)
+
+[کلیپ ویژه ۸۷: بررسی نقدی بر منوتو](https://www.youtube.com/watch?v=gLf5R7LTaI0)
 
 ### ۱۹ بهمن
 
@@ -2661,11 +2661,11 @@
 
 ### ۱۳ فروردین
 
-[کلیپ ۴۷۸:  دموکراسی در مقابل پادشاهی -](https://www.youtube.com/watch?v=81nE5Y1X93Y)
-
 [ضربت خوردن علی](https://www.youtube.com/watch?v=_Qbqydnk99c)
 
 [ماجرای ضربت خوردن علی 2](https://www.youtube.com/watch?v=tM5XzBMUa2A)
+
+[کلیپ ۴۷۸:  دموکراسی در مقابل پادشاهی -](https://www.youtube.com/watch?v=81nE5Y1X93Y)
 
 ### ۱۴ فروردین
 
@@ -3085,6 +3085,8 @@
 
 ### ۱۰ آذر
 
+[کلیپ ویژه ۱۸۴: برقراری آتش بس!](https://www.youtube.com/watch?v=alVkmkITAqc)
+
 [کلیپ ویژه ۱۸۵: در سوریه چه خبره؟](https://www.youtube.com/watch?v=RB-ZqrN0tSk)
 
 ### ۱۲ آذر
@@ -3303,9 +3305,9 @@
 
 ### ۱ فروردین
 
-[کلیپ ۵۲۱:  جایگاه حکمیت، بین علی و معاویه!](https://www.youtube.com/watch?v=feutXmoKaZ0)
-
 [کلیپ ویژه ۲۲۴: نوروز ۲۵۸۴ خجسته باد. ❤️](https://www.youtube.com/watch?v=H8K6F_HhY6A)
+
+[کلیپ ۵۲۱:  جایگاه حکمیت، بین علی و معاویه!](https://www.youtube.com/watch?v=feutXmoKaZ0)
 
 ### ۳ فروردین
 
@@ -3501,3 +3503,8 @@
 
 [کلیپ ویژه ۲۶۵: آتش بس عجیب ترامپ!](https://www.youtube.com/watch?v=0NGUyOj0IRk)
 ([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250624/zeus-special-265.webm))
+
+### ۴ تیر
+
+[کلیپ ویژه ۲۶۶: تا فصل دوم سریال جنگ ۱۲ روزه!](https://www.youtube.com/watch?v=u_ihtag_jAc)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250625/zeus-special-266.webm))
