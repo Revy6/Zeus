@@ -3507,18 +3507,14 @@
 ### ۴ تیر
 
 [کلیپ ویژه ۲۶۶) تا فصل دوم سریال جنگ ۱۲ روزه!](https://www.youtube.com/watch?v=u_ihtag_jAc)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250625/zeus-special-266.webm)
--
-[بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B6%29-%D8%AA%D8%A7-%D9%81%D8%B5%D9%84-%D8%AF%D9%88%D9%85-%D8%B3%D8%B1%DB%8C%D8%A7%D9%84-%D8%AC%D9%86%DA%AF-%DB%B1%DB%B2-%D8%B1%D9%88%D8%B2%D9%87%21))
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250625/zeus-special-266.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B6%29-%D8%AA%D8%A7-%D9%81%D8%B5%D9%84-%D8%AF%D9%88%D9%85-%D8%B3%D8%B1%DB%8C%D8%A7%D9%84-%D8%AC%D9%86%DA%AF-%DB%B1%DB%B2-%D8%B1%D9%88%D8%B2%D9%87%21))
 
 ### ۵ تیر
 
 [کلیپ ویژه ۲۶۷) خامنه‌ای و کار نیمه تمام ترامپ!](https://www.youtube.com/watch?v=M68xxfJHeaY)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250626/zeus-special-267.webm)
--
-[بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B7%29-%D8%AE%D8%A7%D9%85%D9%86%D9%87%E2%80%8C%D8%A7%DB%8C-%D9%88-%DA%A9%D8%A7%D8%B1-%D9%86%DB%8C%D9%85%D9%87-%D8%AA%D9%85%D8%A7%D9%85-%D8%AA%D8%B1%D8%A7%D9%85%D9%BE%21))
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250626/zeus-special-267.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B7%29-%D8%AE%D8%A7%D9%85%D9%86%D9%87%E2%80%8C%D8%A7%DB%8C-%D9%88-%DA%A9%D8%A7%D8%B1-%D9%86%DB%8C%D9%85%D9%87-%D8%AA%D9%85%D8%A7%D9%85-%D8%AA%D8%B1%D8%A7%D9%85%D9%BE%21))
 
 ### ۶ تیر
 
 [کلیپ ویژه ۲۶۸) آتش بس، تا کی ادامه داره؟!](https://www.youtube.com/watch?v=uCUsoubGTTc)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250627/zeus-special-268.webm))
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250627/zeus-special-268.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B8%29-%D8%A2%D8%AA%D8%B4-%D8%A8%D8%B3%D8%8C-%D8%AA%D8%A7-%DA%A9%DB%8C-%D8%A7%D8%AF%D8%A7%D9%85%D9%87-%D8%AF%D8%A7%D8%B1%D9%87%D8%9F%21))
