@@ -3518,3 +3518,8 @@
 
 [کلیپ ویژه ۲۶۸) آتش بس، تا کی ادامه داره؟!](https://www.youtube.com/watch?v=uCUsoubGTTc)
 ([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250627/zeus-special-268.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B8%29-%D8%A2%D8%AA%D8%B4-%D8%A8%D8%B3%D8%8C-%D8%AA%D8%A7-%DA%A9%DB%8C-%D8%A7%D8%AF%D8%A7%D9%85%D9%87-%D8%AF%D8%A7%D8%B1%D9%87%D8%9F%21))
+
+### ۷ تیر
+
+[کلیپ ویژه ۲۶۹) یک آتش بس ناپایدار، و دیگر هیچ!](https://www.youtube.com/watch?v=pKK2jYPO320)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250628/zeus-special-269.webm))
