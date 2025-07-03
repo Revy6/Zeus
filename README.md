@@ -3528,3 +3528,8 @@
 
 [کلیپ ویژه ۲۷۰) واکنش ۵۷یها به کارزار شاهزاده و اسکن کد، در شبکه اینترنشنال!](https://www.youtube.com/watch?v=RKm_bvm_fQ8)
 ([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250701/zeus-special-270.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B7%DB%B0%29-%D9%88%D8%A7%DA%A9%D9%86%D8%B4-%DB%B5%DB%B7%DB%8C%D9%87%D8%A7-%D8%A8%D9%87-%DA%A9%D8%A7%D8%B1%D8%B2%D8%A7%D8%B1-%D8%B4%D8%A7%D9%87%D8%B2%D8%A7%D8%AF%D9%87-%D9%88-%D8%A7%D8%B3%DA%A9%D9%86-%DA%A9%D8%AF%D8%8C-%D8%AF%D8%B1-%D8%B4%D8%A8%DA%A9%D9%87-%D8%A7%DB%8C%D9%86%D8%AA%D8%B1%D9%86%D8%B4%D9%86%D8%A7%D9%84%21))
+
+### ۱۲ تیر
+
+[کلیپ ویژه ۲۷۱) تاثیر پیشگویی‌های کتاب مقدس، بر تصمیم ترامپ!](https://www.youtube.com/watch?v=cY_W8tSWsmI)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250703/zeus-special-271.webm))
