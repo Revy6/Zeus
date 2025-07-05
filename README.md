@@ -3533,3 +3533,13 @@
 
 [کلیپ ویژه ۲۷۱) تاثیر پیشگویی‌های کتاب مقدس، بر تصمیم ترامپ!](https://www.youtube.com/watch?v=cY_W8tSWsmI)
 ([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250703/zeus-special-271.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B7%DB%B1%29-%D8%AA%D8%A7%D8%AB%DB%8C%D8%B1-%D9%BE%DB%8C%D8%B4%DA%AF%D9%88%DB%8C%DB%8C%E2%80%8C%D9%87%D8%A7%DB%8C-%DA%A9%D8%AA%D8%A7%D8%A8-%D9%85%D9%82%D8%AF%D8%B3%D8%8C-%D8%A8%D8%B1-%D8%AA%D8%B5%D9%85%DB%8C%D9%85-%D8%AA%D8%B1%D8%A7%D9%85%D9%BE%21))
+
+### ۱۳ تیر
+
+[کلیپ ویژه ۲۷۲) فیلم انفجارهای تجریش، واقعی بودن یا نبودن!](https://www.youtube.com/watch?v=dyYB4c-T4zE)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250706/zeus-special-272.webm))
+
+### ۱۴ تیر
+
+[کلیپ ۵۳۱)  امام حسین، از نماد مظلومیت، تا اسطوره آزادگی!](https://www.youtube.com/watch?v=vd49vmX5O7s)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250706/zeus-531.webm))
