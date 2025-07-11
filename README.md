@@ -3494,25 +3494,22 @@
 ### ۲ تیر
 
 [کلیپ ویژه ۲۶۳) شبکه اینترنشنال» در این روزهای درگیری!](https://www.youtube.com/watch?v=fbi5leqRvbs)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250623/zeus-special-263.webm))
 
 [کلیپ ویژه ۲۶۴) بازگشت به شکوه ایران، با تغییر رژیم!](https://www.youtube.com/watch?v=ALRpOyQLCmQ)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250623/zeus-special-264.webm))
 
 ### ۳ تیر
 
 [کلیپ ویژه ۲۶۵) آتش بس عجیب ترامپ!](https://www.youtube.com/watch?v=0NGUyOj0IRk)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250624/zeus-special-265.webm))
 
 ### ۴ تیر
 
 [کلیپ ویژه ۲۶۶) تا فصل دوم سریال جنگ ۱۲ روزه!](https://www.youtube.com/watch?v=u_ihtag_jAc)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250625/zeus-special-266.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B6%29-%D8%AA%D8%A7-%D9%81%D8%B5%D9%84-%D8%AF%D9%88%D9%85-%D8%B3%D8%B1%DB%8C%D8%A7%D9%84-%D8%AC%D9%86%DA%AF-%DB%B1%DB%B2-%D8%B1%D9%88%D8%B2%D9%87%21))
+([بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B6%29-%D8%AA%D8%A7-%D9%81%D8%B5%D9%84-%D8%AF%D9%88%D9%85-%D8%B3%D8%B1%DB%8C%D8%A7%D9%84-%D8%AC%D9%86%DA%AF-%DB%B1%DB%B2-%D8%B1%D9%88%D8%B2%D9%87%21))
 
 ### ۵ تیر
 
 [کلیپ ویژه ۲۶۷) خامنه‌ای و کار نیمه تمام ترامپ!](https://www.youtube.com/watch?v=M68xxfJHeaY)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250626/zeus-special-267.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B7%29-%D8%AE%D8%A7%D9%85%D9%86%D9%87%E2%80%8C%D8%A7%DB%8C-%D9%88-%DA%A9%D8%A7%D8%B1-%D9%86%DB%8C%D9%85%D9%87-%D8%AA%D9%85%D8%A7%D9%85-%D8%AA%D8%B1%D8%A7%D9%85%D9%BE%21))
+([بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B6%DB%B7%29-%D8%AE%D8%A7%D9%85%D9%86%D9%87%E2%80%8C%D8%A7%DB%8C-%D9%88-%DA%A9%D8%A7%D8%B1-%D9%86%DB%8C%D9%85%D9%87-%D8%AA%D9%85%D8%A7%D9%85-%D8%AA%D8%B1%D8%A7%D9%85%D9%BE%21))
 
 ### ۶ تیر
 
@@ -3537,9 +3534,34 @@
 ### ۱۳ تیر
 
 [کلیپ ویژه ۲۷۲) فیلم انفجارهای تجریش، واقعی بودن یا نبودن!](https://www.youtube.com/watch?v=dyYB4c-T4zE)
-([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250706/zeus-special-272.webm))
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250706/zeus-special-272.webm) - [بخوانید](https://github.com/Revy6/Zeus/wiki/%DA%A9%D9%84%DB%8C%D9%BE-%D9%88%DB%8C%DA%98%D9%87-%DB%B2%DB%B7%DB%B2%29-%D9%81%DB%8C%D9%84%D9%85-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D9%87%D8%A7%DB%8C-%D8%AA%D8%AC%D8%B1%DB%8C%D8%B4%D8%8C-%D9%88%D8%A7%D9%82%D8%B9%DB%8C-%D8%A8%D9%88%D8%AF%D9%86-%DB%8C%D8%A7-%D9%86%D8%A8%D9%88%D8%AF%D9%86%21))
 
 ### ۱۴ تیر
 
 [کلیپ ۵۳۱)  امام حسین، از نماد مظلومیت، تا اسطوره آزادگی!](https://www.youtube.com/watch?v=vd49vmX5O7s)
 ([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250706/zeus-531.webm))
+
+### ۱۵ تیر
+
+[کلیپ ویژه ۲۷۳) پیامد خروج موشعلی، انفجار تجریش، کودتای روحانی، و دیگر هیچ!](https://www.youtube.com/watch?v=TnL9-pfgAaM)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250712/zeus-special-273.webm))
+
+### ۱۷ تیر
+
+[کلیپ ویژه ۲۷۴) نقش مردم در درگیری، و برخورد رژیم با مهاجران افغان!](https://www.youtube.com/watch?v=RkrgMeropPA)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250712/zeus-special-274.webm))
+
+### ۱۸ تیر
+
+[کلیپ ویژه ۲۷۵) تحریم اینترنشنال، از سوی ۵۷یها!](https://www.youtube.com/watch?v=I1lGVbwK0Bs)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250712/zeus-special-275.webm))
+
+### ۱۹ تیر
+
+[کلیپ ویژه ۲۷۶) پاسخ زئوس به آقای علی شریفی (مجری شبکه ولی‌عصر)، بر شبهات غدیرخم!](https://www.youtube.com/watch?v=KYi-LXlVzDg)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250712/zeus-special-276.webm))
+
+### ۲۰ تیر
+
+[کلیپ ویژه ۲۷۷) بی بی، و راههای نرفته اش، در پایان مهلت ۶۰ روزه!](https://www.youtube.com/watch?v=AqBXDh5uT5w)
+([دانلود صدا](https://github.com/Revy6/Zeus/releases/download/20250712/zeus-special-277.webm))
